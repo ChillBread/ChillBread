@@ -1,3 +1,3 @@
 - 💬 Chill Bread Discord: https://discord.gg/2y4muvBNXX
-- 🎥 Chill Bread YouTube: https://www.youtube.com/channel/UC82cGEnMjkkxYl4m5qqceoQ
+- 🎥 Chill Bread YouTube: https://www.youtube.com/@chillbreadyt
 - 🌐 Chill Bread Website: https://www.chillbread.ga/
